@@ -1,0 +1,2 @@
+# DUE
+Tanórai feladatok
